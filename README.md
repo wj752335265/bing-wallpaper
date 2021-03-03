@@ -1,4 +1,3 @@
-## fork大佬的不是专业干这行的，用一段时间就会关闭
 ## Bing Wallpaper
 ![](https://cn.bing.com/th?id=OHR.WWDLions_EN-US0205102042_UHD.jpg&w=1000)Today: [Female lions in the forest surrounding Lake Nakuru, Kenya (© Scott Davis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WWDLions_EN-US0205102042_UHD.jpg)
 |      |      |      |
