@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-23 | [Elbe river in Dresden, Germany (© Sean Pavone/Getty Images)](https://cn.bing.com/th?id=OHR.DresdenElbe_EN-GB9622986558_UHD.jpg) 
+
 2025-06-23 | [Amazon rainforest, Ecuador (© Mark Fox/Getty Images)](https://cn.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg) 
 
 2025-06-22 | [Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg) 
